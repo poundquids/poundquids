@@ -10,4 +10,6 @@ top 30 eliminated scenes . number one yourFUCKING ASS RIGHT NOW
 art by pidertroupeart 
 
 mintcoffee duo (shadow & tails) ceo 
+
+if you ever see me sitting with a "kelsey" guy pls call the police idk him!
 </div>
