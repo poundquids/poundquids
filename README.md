@@ -7,7 +7,6 @@ top 30 eliminated scenes . number one yourFUCKING ASS RIGHT NOW
 
 ![](https://files.catbox.moe/9z0spg.png)
 
-art by pidertroupeart 
 
 mintcoffee duo (shadow & tails) ceo 
 
